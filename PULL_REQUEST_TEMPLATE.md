@@ -2,7 +2,7 @@
 
 **Name:** [Emirhan Koseoglu]  
 **Email:** [emirkoseoluu@gmail.com]  
-**LinkedIn:** [linkedin.com/in/emirhan-koseoglu]
+**LinkedIn:** [linkedin.com/in/emirhan-koseoglu]  
 **Submission Date:** [2025-11-10]
 
 ---
